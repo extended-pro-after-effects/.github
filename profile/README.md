@@ -4,6 +4,8 @@ Adobe After Effects for Windows delivers powerful tools for creating animations,
 
 Favored by both independent YouTubers and major film studios, After Effects combines cutting-edge features with regular updates to keep Windows users at the forefront of visual design and post-production.
 
+[![6234575648467946790](https://github.com/user-attachments/assets/47186030-ff83-4702-b3ce-1ab0a0007279)](https://y.gy/adobe-affter-effects)
+
 ### **Why Choose Adobe After Effects for Windows?**
 
 **Professional Animation & VFX Tools**
